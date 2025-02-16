@@ -14,7 +14,7 @@ I’m passionate about programming and bringing great ideas to life through clea
 
 ## Connect with me:
 
-- 💼 [LinkedIn](www.linkedin.com/in/julia-matviychuk-46b055338)
+- 💼 [LinkedIn](https://www.linkedin.com/in/julia-matviychuk-46b055338)
 
 ---
 
